@@ -1,2 +1,2 @@
-# sololevelingportugues
-Tradução da Novel Solo Leveling
+# Tradução da Novel Solo Leveling
+
